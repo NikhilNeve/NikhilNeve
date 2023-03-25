@@ -8,7 +8,7 @@
 
 🌱 I'm currently learning machine learning and predictive modeling, and I'm always looking for new ways to expand my knowledge and skill set. 
 
-#### 📫 How to reach me: 
+#### 📫 How to connect with me: 
 * LinkedIn- https://www.linkedin.com/in/nikhil-neve-463408247/
 * Mail- neve.nikhil121@gmail.com
 
